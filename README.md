@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Aidan
+- 👀 I’m interested in beanie babies
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nothing im pretty scrub
+- 📫 How to reach me twitter
